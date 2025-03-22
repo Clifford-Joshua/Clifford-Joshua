@@ -21,4 +21,4 @@ I’m currently learning web development and exploring different technologies to
 
 📬 Connect with Me
 📧 Email: cliffordgb45@gmail.com ✉️
-🔗 LinkedIn: Clifford Joshua 🌍
+🔗 LinkedIn: [Clifford Joshua](https://www.linkedin.com/in/clifford-joshua-aaa89b30b/) 🌍
